@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-- 📫 How to reach me: LinkedIn or, better, at georgian.sofronea@gmail.com
+- 📫 How to reach me: LinkedIn at [linkedin.com/georgiansofronea](https://www.linkedin.com/in/georgiansofronea/) or, better, at georgian.sofronea@gmail.com
